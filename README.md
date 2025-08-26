@@ -1,0 +1,2 @@
+# asslamualaikum
+sanak (untuak basamo)
